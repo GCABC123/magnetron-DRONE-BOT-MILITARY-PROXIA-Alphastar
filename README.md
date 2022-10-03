@@ -1,3 +1,37 @@
+ 🤖 THE ABC 123 GROUP ™ 🤖
+
+🌐 GENERAL CONSULTING ABC 123 BY OSAROPRIME ™.
+
+🌐 ABC 123 USA ™
+
+🌐 ABC 123 DESYGN ™
+
+🌐 ABC 123 FILMS ™
+
+=============================================================
+
+                     🌐 MAGENTRON ™ 🌐
+                     
+🌐 ARTIFICIAL INTELLIGENCE 2.0 ™ : ROBOTIC MANAGEMENT PROXIA A-1
+
+
+
+*️⃣📶🤖
+
+FOR USE WITH QUEEN ™ OF PHALANX ™/SWARM ™/HIVE (PAIRED WITH VIDEO SIGNALS FROM DRONE-BOT ™)
+
+-------------------------
+
+🌐 QUEEN ™: ROBOTIC PHALANX ™/SWARM ™/HIVE ™ MANAGEMENT SYSTEM.
+
+🌐 QUEEN ™: PHALANX ™/SWARM ™/HIVE ™ RESOURCE MANAGEMENT SYSTEM.
+
+🌐 QUEEN ™: MILITARY MANAGEMENT OF PHALANX ™/SWARM ™/HIVE ™ SYSTEM.
+
+
+
+-------------------------
+
 🤖 [ NEEDS TO BE ADAPTED FOR USE WITH YOUR (NEW) MACHINE 'RACE' AND ITS CAPABILITIES ] 🤖
 
 # AlphaStar.
