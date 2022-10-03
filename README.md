@@ -1,3 +1,5 @@
+🤖 [ NEEDS TO BE ADAPTED FOR USE WITH YOUR (NEW) MACHINE 'RACE' AND ITS CAPABILITIES ] 🤖
+
 # AlphaStar.
 
 [AlphaStar](https://github.com/deepmind/alphastar) is a package from
