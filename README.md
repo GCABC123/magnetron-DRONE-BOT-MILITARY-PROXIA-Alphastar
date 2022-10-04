@@ -33,6 +33,9 @@ FOR USE WITH **QUEEN ™** OF **PHALANX ™/SWARM ™/HIVE** (PAIRED WITH VIDEO 
 
 
 -------------------------
+AlphaStar is a computer program by DeepMind originally to play the video game StarCraft II. AlphaStar has the same kind of constraints that humans play under – including viewing the world through a camera.
+
+-------------------------
 
 🤖 ( NEEDS TO BE ADAPTED FOR USE WITH YOUR (NEW) MACHINE 'RACE' AND ITS CAPABILITIES ) 🤖
 
